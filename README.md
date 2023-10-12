@@ -1,6 +1,8 @@
 # Olá, tudo bem? :blush:
 
-Meu nome é Tayling, tenho formação de nível técnico em Segurança do Trabalho com especialização na área de Higiene Ocupacional. Experiência com gestão de projetos, equipes e trabalho de campo em área industrial, desde 2012 até 2022. Atualmente me encontro em processo de transição de carreira, buscando conhecimento em áreas que considero promissoras e também com as quais me identifico. Ainda com conhecimentos básicos na área de tecnologia, entretanto meus anos de experiência em outra profissão me ensinaram a ser uma profissional comprometida, focada em atingir meus objetivos, e dedicada a prestar serviço de qualidade. Almejo uma oportunidade para colocar meus estudos em prática e aprender muito mais. 
+Meu nome é Tayling, tenho formação de nível técnico em Segurança do Trabalho com especialização na área de Higiene Ocupacional. Experiência com gestão de projetos, equipes e trabalho de campo em área industrial, desde 2012 até 2022. 
+
+Atualmente me encontro em processo de transição de carreira, buscando conhecimento em áreas que considero promissoras e também com as quais me identifico. Ainda com conhecimentos básicos na área de tecnologia, entretanto meus anos de experiência em outra profissão me ensinaram a ser uma profissional comprometida, focada em atingir meus objetivos, e dedicada a prestar serviço de qualidade. Almejo uma oportunidade para colocar meus estudos em prática e aprender muito mais. 
 
 #
 
