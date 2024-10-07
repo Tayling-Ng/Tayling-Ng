@@ -1,8 +1,8 @@
 # Olá, tudo bem? :blush:
 
-Tenho 10 anos de experiência em análise de dados na área de Higiene Ocupacional em ambiente industrial, com habilidade em gestão de projetos e equipes. Essa jornada me moldou como uma profissional comprometida, determinada em alcançar meus objetivos, e dedicada a prestar serviço de excelência.
+Por 10 anos trabalhei em ambiente industrial, coletando e analisando dados, com o intuito de garantir um ambiente de trabalho salubre. Gerenciar projetos e liderar equipes me tornou uma profissional comprometida, dedicada a prestar serviço de excelência, e com foco em resultados.
 
-Atualmente em transição de carreira, direcionando meu foco de estudos para áreas promissoras e de afinidade pessoal: Dados e Cloud Computing. Busco uma oportunidade desafiadora, que me permita aplicar meu conhecimento teórico na prática, expandindo assim minha habilidade e contribuindo para meu desenvolvimento profissional.
+Atualmente em transição de carreira, me dedico ao estudo de Dados e Cloud Computing, áreas pelas quais tenho grande afinidade e desejo me aprofundar. Busco uma oportunidade desafiadora onde eu possa colocar em prática o meu conhecimento, contribuir com minhas habilidades e, ao mesmo tempo, continuar evoluindo. Desejo fazer parte de um time onde eu possa crescer, trocando experiências e adquirindo novas habilidades.
 
 
 #
