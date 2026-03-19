@@ -2,7 +2,7 @@
 
 Por 10 anos trabalhei em ambiente industrial, coletando e analisando dados, com o intuito de garantir um ambiente de trabalho salubre. Gerenciar projetos e liderar equipes me tornou uma profissional comprometida, dedicada a prestar serviço de excelência, e com foco em resultados.
 
-Atualmente em transição de carreira, me dedico ao estudo de Dados e Cloud Computing, áreas pelas quais tenho grande afinidade e desejo me aprofundar. Busco uma oportunidade desafiadora onde eu possa colocar em prática o meu conhecimento, contribuir com minhas habilidades e, ao mesmo tempo, continuar evoluindo. Desejo fazer parte de um time onde eu possa crescer, trocando experiências e adquirindo novas habilidades.
+Atualmente em transição de carreira, graduada em Análise e Desenvolvimento de Sistemas, me dedico ao estudo de Cloud Computing (AWS) e Cultura DevOps, áreas pelas quais tenho grande afinidade e desejo me aprofundar. Busco uma oportunidade desafiadora onde eu possa colocar em prática o meu conhecimento, contribuir com minhas habilidades e, ao mesmo tempo, continuar evoluindo. Desejo fazer parte de um time onde eu possa contribuir, crescer trocando experiências, e adquirir novas habilidades.
 
 
 #
